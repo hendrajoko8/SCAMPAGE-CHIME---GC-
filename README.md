@@ -3,8 +3,8 @@
 ## **📧 CONTACT**
 
 _MY CONTACT <a href="https://wa.me/+380675877299/">WHATSAPP</a>_
-_MY CONTACT <a href="https://www.facebook.com/usdsmellyy">FACEBOOK</a>_
-_MY CONTACT <a href="https://web.telegram.org/k/#@usdsmellyy">TELEGRAM</a>_
+_| <a href="https://www.facebook.com/usdsmellyy">FACEBOOK</a>_
+_| <a href="https://web.telegram.org/k/#@usdsmellyy">TELEGRAM</a>_
 
 ---
 
