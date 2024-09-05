@@ -9,7 +9,7 @@ _MY CONTACT <a href="https://web.telegram.org/k/#@usdsmellyy">TELEGRAM</a>_
 ---
 
 <h2>SCAMPAGE CHIME PRIVATE PAID - GCLOUD 👾 </h2>
-<img src="https://imgur.com/a/chime-ghost-cloud-3sTRQef" style="max-width:100%;">
+<blockquote class="imgur-embed-pub" lang="en" data-id="a/3sTRQef"  ><a href="//imgur.com/a/3sTRQef">CHIME - GHOST CLOUD</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 
 ## Installation :
 
